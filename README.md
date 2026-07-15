@@ -1,5 +1,5 @@
 Hi!,
 
-Email: `contact.angadsankhla <at> gmail.com  `
-X: `ayeangad  `
-Linkedin: `angad-sankhla`
+Email: `contact.angadsankhla101 &lt;at&gt; gmail.com`  
+X: `ayeangad`  
+LinkedIn: `angad-sankhla`
